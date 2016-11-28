@@ -1,1 +1,1 @@
-Dongguk University
+Dongguk University SCSC
