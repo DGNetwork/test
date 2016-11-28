@@ -1,1 +1,1 @@
-Dongguk University SCSC
+Dongguk University SCSC LOVE
